@@ -1,2 +1,2 @@
-Mystery Music Band
+Indepent Music Band
 သံလွင်ချစ်သူသီချင်းများ
